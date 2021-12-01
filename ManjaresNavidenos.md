@@ -12,3 +12,6 @@
 ### Para envolver
 - 3 hojas de plátano y papel de de hornear Cortar en 6 cuadrados de 13 x 13 cm [5 "x5"]
 - Cordel (cuerda para cocinar)
+
+#### Referencia
+https://www.cocinadominicana.com/8726/pasteles-en-hoja-de-yuca 
