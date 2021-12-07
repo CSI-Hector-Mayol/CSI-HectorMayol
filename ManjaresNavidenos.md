@@ -1,5 +1,9 @@
+<div align="center">
+
 # Manjares Navideños
 ## Pasteles de Yuca
+  </div>
+  
 ### Ingredientes 
 - 2 libras yuca [0.9 kg] pelada y lavada
 - ½ libra auyama [0,23 kg], pelada
