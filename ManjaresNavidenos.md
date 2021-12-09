@@ -23,7 +23,7 @@
 2. Mezclar la yuca, ayuna, leche, bija, mantequilla, 3/4 cucharada de sal y ajo en polvo
 3. Envolver la mezcla en las ojas
 4. Cocinar
-5.Servir   
+5. Servir   
                                                                                           
 #### Video
 - https://www.youtube.com/watch?v=C6-OhcKfsSU                                                                                           
